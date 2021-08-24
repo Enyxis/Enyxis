@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Enyxis
+- 👀 I’m interested in programing..
