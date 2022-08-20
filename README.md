@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @Enyxis
+- 👋 Hi, I’m @IGOR
 - 👀 I’m interested in programing..
